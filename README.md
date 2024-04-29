@@ -1,1 +1,3 @@
 Below is Kavacdoor's Fivem infection, which I file steal in 5 minutes. by emnosia
+
+https://discord.gg/rgB84Kqkrj
